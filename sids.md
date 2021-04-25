@@ -86,4 +86,4 @@ Trishula smirked, then overacted begging for mercy.
 
 "But what if there's really a-?"
 
-"Not one word more. On your return, you will have remedial lessons. I will give formal notice to the Division of Secrets to ensure that you do not suddenly find yourself on other urgent business. Don't think Nara-O can save you this time."
+"Not one word more."
